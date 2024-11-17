@@ -131,7 +131,7 @@
 
 ## סקר שוק
 
-ביטוי החיפוש בו השתמשנו - "chinese cooking game".
+ביטוי החיפוש בו השתמשנו - "co op void horror puzzle game".
 ---
 
 משחק 1:
